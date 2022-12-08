@@ -1,5 +1,2 @@
-I dont know what im doing help pls
+I am your most sane and mentally stable Twoset fan
 
-moneyyyyyyyyy
-
-Pythagorean tuning
