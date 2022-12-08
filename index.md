@@ -1,5 +1,5 @@
-Here you can say lots of fun things about your site.
+I dont know what im doing help pls
 
-Maybe say a some things about yourself.
+moneyyyyyyyyy
 
-Or maybe what you plan to blog about.
+Pythagorean tuning
