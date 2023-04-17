@@ -1,2 +1,2 @@
-I am your most sane and mentally stable Twoset fan
+A Computer-Science-Major-to-be who has a (VERY) rational obsession with cats, music and MBTI.
 
